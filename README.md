@@ -1,16 +1,13 @@
-### Hi there 👋
+Hello & Greetings!
 
-<!--
-**CoolCoder24/CoolCoder24** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Well I'm S.R.T, and I gotta say, I'm a little surprised to see someone here reading this, but since you are thank you!
 
-Here are some ideas to get you started:
+Anyways... Here's a little bit about me, ig: 
+- i'm working on learning web development right now (which ig you could probably tell from my repositories)
+- I'm trying to learn game development (No idea how that will go)
+- And... huh, not much to say really
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+📫 How to reach me:
+Well I'd love to talk if you do as well! 
+we can discuss the works of humanity together!
+...or about other things that people discuss about

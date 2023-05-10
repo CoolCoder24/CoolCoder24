@@ -8,6 +8,7 @@ Anyways... Here's a little bit about me, ig:
 - And... huh, not much to say really
 
 📫 How to reach me:
+
 Well I'd love to talk if you do as well! 
-we can discuss the works of humanity together!
-...or about other things that people discuss about
+
+we can discuss things other people talk about... or just life in general

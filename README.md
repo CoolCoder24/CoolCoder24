@@ -9,7 +9,7 @@
 Well um... how are you doing today? 
 I'm not even in-person and I can sense the awkwardness
 
-Since you're still reading I will try and salvage it!
+Since you're still reading this, there maybe still hope to salvage this yet!
 
 -----
 

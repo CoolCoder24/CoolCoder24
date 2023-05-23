@@ -26,4 +26,4 @@ we can discuss things other people talk about, like life. If you want, or we can
 
 if your still reading this then you're a really spectacular, great preson and you have way too much patience. But hey I appluad you for getting through this awkward introduction. Thanks for that btw :) 
 
->Create a PR, if u wanna talk :) -yeah ur right. Wayyy too many smiley faces-
+>Create a PR, if u wanna talk. I'm also active on discord :) -yeah ur right. Wayyy too many smiley faces-

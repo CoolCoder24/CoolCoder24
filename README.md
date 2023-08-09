@@ -2,7 +2,7 @@
 
 -----
 
-### Well I'm S.R.T, and I gotta say, I'm a little surprised to see someone here reading this, but since you are, thank you!
+### Well I'm S.R.T, and welcome! 
 
 -----
 
@@ -23,7 +23,6 @@ Since you're still reading this, there may be still hope to salvage this yet!
 
 **Well I'd love to talk if you do as well!**
 
-we can discuss things other people talk about, like life. If you want, or we can discuss my poor usernae choices. Either or. 
 
 if your still reading this then you're a really spectacular, great preson and you have way too much patience. But hey I appluad you for getting through this awkward introduction. Thanks for that btw :) 
 
